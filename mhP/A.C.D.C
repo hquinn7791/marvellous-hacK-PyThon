@@ -1,0 +1,1 @@
+geo -neo//...A.C. full and unsupervised edition on Exploring //and explainably//dissorting the symmetrics values and codec vs numerogical synthesis in an matrix grid like tablet form where each symbol values = all and every scientific abbreviation// to nullify and distribute a NEW WORLD ORDer and a.l.i.e.n. code.///
